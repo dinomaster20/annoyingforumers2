@@ -19,7 +19,7 @@ empera_kun (debatable)
 
 TheSmartGuy1234 (not that smart tbh)
 
-k0d3rrr (needs to go outside)
+**k0d3rrr (needs to go outside)**
 
 roblox888i (probably 6)
 
