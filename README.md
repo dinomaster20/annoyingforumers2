@@ -29,3 +29,5 @@ ScolderCreations (brought unnessecary drama to TFH, fuck off)
 thatoneweirddude (he made this godawful terrible account that spreads hate oh my!)
 
 dinomaster20 (:trollface:)
+
+han614698 (stop bitching about the list)
