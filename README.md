@@ -1,4 +1,4 @@
-the revival. everything here is jokes. first person to bring it up on scratch gets kneecaps removed.
+Here it is folks, the list that caused TFH to crumble. Enjoy.
 
 list of annoying forumers (will be constantly updated)
 
