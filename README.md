@@ -32,3 +32,5 @@ MasterArc, —Optimum— (💀)
 **ScolderCreations (brought unnessecary drama to TFH, fuck off)**
 
 han614698 (stop bitching about the list)
+
+helloworldbyeworld (get over yourself 💀)
